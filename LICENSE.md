@@ -1,4 +1,4 @@
-
+Enhance Adobe Premiere Pro for macOS with Adobe Premiere Pro for macOS premium Effect: scene-transitions & proxy-editing, the #1 effect. Includes scene-transitions and
 
 
 
